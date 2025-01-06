@@ -1,2 +1,2 @@
 # Ayushkhoslaiscool.github.io
-## This for my scitech protfolio 
+## This for my scitech portfolio 
